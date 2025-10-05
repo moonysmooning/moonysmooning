@@ -1,12 +1,11 @@
 
 <img width="400" height="53" alt="tumblr_60e1128436fdabd99d5b229c5ff51d5c_6452721b_400" src="https://github.com/user-attachments/assets/7c2ba605-cb24-4bd6-be65-929df860dd7e" /><img width="400" height="53" alt="tumblr_60e1128436fdabd99d5b229c5ff51d5c_6452721b_400" src="https://github.com/user-attachments/assets/7c2ba605-cb24-4bd6-be65-929df860dd7e" />
 
-<img width="309" height="133" alt="495953243-42a6b094-d58e-4ab8-b622-fa87fe377ba9" src="https://github.com/user-attachments/assets/c8766492-78e4-4c68-a48e-92b2a2d8b068" />            ![tumblr_5a8f3880ccf8d1daa35c0e27025b07a6_556beae0_100](https://github.com/user-attachments/assets/a684159d-f827-4ed3-8bd0-e7ec3bcc24b6)![tumblr_9cb94cca0745e0c42341a4db58cd2e81_55e1f3f0_100](https://github.com/user-attachments/assets/536282e8-af89-42d6-a15f-17a4f40b47eb)![tumblr_bf1efe83c822a87b57d69eb2e6b4f872_43e0fc7c_100](https://github.com/user-attachments/assets/534b9ca2-29d8-4e7f-b578-d0c16aaf6c75)
+ iwcare . shipsdni  .  call me remus or moony ! jkr supporters dni um  . . i laauv my boyfriiend . hii dear
+
+ ![tumblr_5a8f3880ccf8d1daa35c0e27025b07a6_556beae0_100](https://github.com/user-attachments/assets/a684159d-f827-4ed3-8bd0-e7ec3bcc24b6)![tumblr_c730a9ad6ef9c475150c45eff3fb60f7_a8216525_250](https://github.com/user-attachments/assets/a4c126f0-3a40-479e-bddc-126f70f60c0a)![tumblr_3ba7ea9ae9d0ac260632d3693ee8b5c5_86a00f96_250](https://github.com/user-attachments/assets/1524e206-f4d9-4d12-9745-6e1bec838104)![tumblr_b413fc40756c881ec139c1e31a560ea8_af4389f9_250](https://github.com/user-attachments/assets/92812577-dd75-458e-84f1-9c44c4248cb0)![tumblr_caf074fcdfec3d464c32d7340e40ab19_9d4aebb6_100](https://github.com/user-attachments/assets/c044dfc0-006d-43e4-9ab0-a29d1aa28965)<img width="99" height="56" alt="tumblr_fc9ef20a4cbbda5db867bb19f9e31aad_5c8f34a6_100" src="https://github.com/user-attachments/assets/d6d44260-1eba-4df3-97dd-d549e71a82e9" /><img width="99" height="56" alt="tumblr_195f8eb97e6d0f833acbe9e20afe9b2d_ed5987af_100" src="https://github.com/user-attachments/assets/d9ddba5c-ce3b-440b-b86a-9fecff021925" />
 
 
-                   iwcare . shipsdni  .  call me remus or moony ! jkr supporters dni um  . . i laauv my boyfriiend . hii dear
-
-<img width="309" height="133" alt="495953243-42a6b094-d58e-4ab8-b622-fa87fe377ba9" src="https://github.com/user-attachments/assets/f31b367e-86f7-45ea-a7ac-a5e4bfefba7c" />  <img width="360" height="120" alt="Untitled553_20251004183053" src="https://github.com/user-attachments/assets/37451e05-0515-4cc4-9c30-7658edce3381" />
 
 
- <img width="400" height="53" alt="tumblr_60e1128436fdabd99d5b229c5ff51d5c_6452721b_400" src="https://github.com/user-attachments/assets/7c2ba605-cb24-4bd6-be65-929df860dd7e" /><img width="400" height="53" alt="tumblr_60e1128436fdabd99d5b229c5ff51d5c_6452721b_400" src="https://github.com/user-attachments/assets/7c2ba605-cb24-4bd6-be65-929df860dd7e" />
+
