@@ -8,4 +8,4 @@
 
 
 
-HI i wantto shout outlike my best friends in the world. .....first of all helo [maddox]https://github.com/scienceisntmorbid i love you bunches : AND : [RUE]https://github.com/invisagal ohomy .sev irl i thik probaably that is snivellus ..:///// gross !!!!! slash jay ok im joking rue i loveyou dud e you are genueinely the most awesome person i know eever maybe  :  [jg]https://github.com/jGbeans30 you are so frekaing awesome dude we have so much in common and you are so fun to talk to 
+HI i wantto shout outlike my best friends in the world. .....first of all helo [maddox](https://github.com/scienceisntmorbid)  i love you bunches : AND : [RUE](https://github.com/invisagal)   ohomy .sev irl i thik probaably that is snivellus ..:///// gross !!!!! slash jay ok im joking rue i loveyou dud e you are genueinely the most awesome person i know eever maybe  :  [jg](https://github.com/jGbeans30)   you are so frekaing awesome dude we have so much in common and you are so fun to talk to 
