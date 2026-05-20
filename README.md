@@ -1,7 +1,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀  ⠀ ⠀⠀⠀⠀⠀ [remus' s  page](https://moonysmooning.straw.page/)   ⠀ ⠀ ⠀𓏵 ⠀⠀⠀⠀⠀ ⠀[lily's  page](https://ohdeeer.straw.page/)
 
 <p align="center">
-<img width="574" height="435" alt="1000038494-removebg-preview" src="https://github.com/user-attachments/assets/441a2cdf-f552-48e3-aac0-98c53c90fa74" />
+<img width="736" height="245" alt="1000038576-removebg-preview" src="https://github.com/user-attachments/assets/1a1bc16a-3608-4e2d-aaec-3ae6e45ab12c" />
+
 
 </p>
 
