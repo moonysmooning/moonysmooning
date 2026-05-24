@@ -23,9 +23,6 @@
 </p>
 
 ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀  hai zev  :-3 . . lov you lots  n lots
-<p align="center">
-<img width="370" height="350" alt="image-removebg-preview_1" src="https://github.com/user-attachments/assets/d2822805-546c-4843-a07b-7d2e98111f27" />
-</p>
 
 <p align="center">
  <img width="368" height="197" alt="image" src="https://github.com/user-attachments/assets/12fb2ea1-4a9d-4c1e-8168-3eb3fc27e88e" />
