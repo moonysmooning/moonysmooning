@@ -1,10 +1,7 @@
 
 
 <p align="center">
-<img width="400" height="360" alt="1000038494-removebg-preview" src="https://github.com/user-attachments/assets/32bb1d07-aa1a-4d1b-a8c3-cacb7f9e2c6b" />
-
-
-
+<img src="https://github.com/user-attachments/assets/0cffb939-988e-47c8-b5b5-4f3e0cb49b07" width="400" alt="Logo">
 </p>
 
 
