@@ -17,9 +17,11 @@
 
 
 
-<p align="center">
-<img width="248" height="215" alt="image" src="https://github.com/user-attachments/assets/68d1af46-7287-44c1-93b7-6d8de47ba766" />
-</p>
 
-⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀⠀  hai sevvy  :-3 . . lov you lots  n lots
+<div align="center">
+<details>
+  <summary>hai sevvy  :-3 . . lov you lots  n lots</summary>
+ <img width="248" height="215" alt="image" src="https://github.com/user-attachments/assets/68d1af46-7287-44c1-93b7-6d8de47ba766" />
+</details>
+</div>
 
